@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @tikusingh-123
+- 👀 I’m currently a software engineer in Cybage software pune.
